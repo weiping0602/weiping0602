@@ -4,8 +4,7 @@
 - 💞️ I’m looking to collaborate on anything what helps me to increase my soft or hard skills
 - 📫 How to reach me weiping0602@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact:joining drama club for two years.
-
+- ⚡ Fun fact:can make Niki laugh out loud
 <!---
 weiping0602/weiping0602 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.

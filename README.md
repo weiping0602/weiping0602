@@ -1,10 +1,10 @@
 - 👋 Hi, I’m @weiping0602
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning German
-- 💞️ I’m looking to collaborate on ...
+- 👀 I’m interested in watching movies and series
+- 🌱 I’m currently learning German& using Github
+- 💞️ I’m looking to collaborate on anything what helps me to increase my soft or hard skills
 - 📫 How to reach me weiping0602@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: ...
+- ⚡ Fun fact:joining drama club for two years.
 
 <!---
 weiping0602/weiping0602 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
